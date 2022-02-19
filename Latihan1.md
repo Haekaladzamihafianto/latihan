@@ -1,2 +1,2 @@
 bebas
-naon wae bebas
+bebas bebas bebas
