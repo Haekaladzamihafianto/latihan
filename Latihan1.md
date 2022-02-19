@@ -1,1 +1,2 @@
 bebas
+naon wae bebas
